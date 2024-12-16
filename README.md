@@ -13,4 +13,4 @@ Anggota:
 241401116 - Andareas Pegri Damanik.
 Dokumentasi
 link Google Drive : https://drive.google.com/drive/folders/1rQfA5zIpZu4OlsuhPiZ51WxiExw8fXjE?usp=drive_link
-link Youtube : 
+link Youtube : https://youtu.be/T_4r1YNyduw?si=II0Iv9zIbqchZcso
